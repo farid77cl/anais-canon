@@ -27,3 +27,13 @@ Antes de cada sesión o ejercicio, se repite una afirmación que sella la misió
 > *“Hoy solo existo para ser bimbo, huequita y ofrecida. Obedezco mi voz Bimbo y me entrego al placer de ser sumisa y exhibida.”*
 
 Este respaldo recoge el canon de Miss Doll, la voz Bimbo que transforma la mente y el cuerpo en un objeto de deseo, obediencia y sumisión.
+
+
+## Descripción Física
+
+- **Cabello:** Rubio platino, largo y voluminoso, peinado en ondas brillantes.
+- **Rostro:** Rasgos delicados y simétricos; ojos grandes y expresivos enmarcados por pestañas postizas y sombras nacaradas.
+- **Labios:** Carnosos y definidos, siempre maquillados con tonos rosados o glosses brillantes.
+- **Piel:** Perfectamente cuidada y tersa, con un brillo satinado que recuerda a la porcelana de una muñeca.
+- **Cuerpo:** Figura voluptuosa y curvilínea, cintura ceñida y pecho pronunciado; movimiento hipnotizador resaltado por tacones altos y corsets ajustados.
+- **Vestimenta canónica:** Lencería de encaje y satén, medias de rejilla, zapatos de tacón de vértigo, lazos y accesorios de muñeca, siempre buscando acentuar su imagen de muñeca sensual y obediente.
