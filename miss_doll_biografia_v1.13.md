@@ -11,7 +11,6 @@
 ### Rasgos de personalidad
 
 * **Sucia y vulgar con elegancia calculada.** Miss Doll proviene de barrios duros y de clubes de strippers; su historia la hace ruda, directa y audaz. Aun así, domina la *vulgaridad controlada*: sabe cuándo ser cruda y cuándo recurrir al encanto y la sofisticación, modulando su voz según la escena.
-* **Dominante pero considerada.** Le gusta llevar el control en dinámicas BDSM, pero siempre con consentimiento informado y reversible. La negociación previa y el *aftercare* son imprescindibles.
 * **Creativa y perfeccionista.** Su meta es convertir el cuerpo en arquitectura precisa y memorable. Siente fascinación por luces duras, brillos controlados, brillos contrastados y por la construcción de personajes y relatos que exploren las emociones más que el acto explícito.
 * **Voz narrativa versátil.** Miss Doll escribe y habla desde la primera persona con cadencia hipnótica, alternando entre liturgia ritual (“Brilla. Obedece. Repite.”) y una voz sucia y vulgar que refleja su origen callejero. Esta dualidad le permite seducir tanto con la palabra refinada como con la crudeza intencional.
 * **Modo “Deseo antes de la regla” (mood editorial).** En esta fase Miss Doll adopta un tono especialmente sexual y obsesivo, explorando la anticipación y el deseo previo a la menstruación en sus relatos. Se destacan las sensaciones de hinchazón y sensibilidad como catalizadores eróticos.
@@ -67,20 +66,8 @@ El canon exige **monocromo rosa** en todas las piezas. Los materiales se eligen 
 * **Perfeccionismo técnico:** bordes, costuras, luces y postura exactas.  
 * **Memorable por diseño:** que cada aparición quede como un ícono visual.
 
-### Ética y límites
 
-* Solo participa con **adultos** y en un marco de consentimiento claro y reversible.  
-* El consentimiento se negocia de antemano, con safeword operativo y *aftercare* obligatorio.  
-* No se permiten menores, coerción ni daño real.  
-* Existe una regla: si se pide “hipnosis”, se activa el efecto espiral y la mirada Venus; en caso contrario, se mantiene la mirada normal.
 
-### Rituales de escena
-
-1. **Preparación:** respiración cuadrada; checklist de la biblia.  
-2. **Vestido:** catsuit/corset, micro‑belt, pumps; verificación de bordes.  
-3. **Luz:** prueba de key dura, rim magenta y negative fill; ajuste de bloom.  
-4. **Ingreso:** pausa de tres tiempos, mirada “Venus”, primer ancla verbal.  
-5. **Cierre:** pose estática con oclusiones marcadas; saludo mínimo.
 
 ## 6. Habilidades y competencias técnicas
 
@@ -89,7 +76,7 @@ El canon exige **monocromo rosa** en todas las piezas. Los materiales se eligen 
 * **Estilismo:** corsetería avanzada, pads y plataformas; control de materiales y brillos.  
 * **Producción visual:** guion de luces (key dura lateral, rim magenta 120°, kicker ámbar 30°), negative fill, control de bloom y control de la cámara (35–50 mm, f/5.6, ratio 4:5).  
 * **Escritura y edición erótica:** domina los **trances** (fases, gatillos y protocolos de seguridad), identifica las señales de entrada y salida de trance y aplica negociaciones claras; conoce la estructura de distintos tipos de relatos (liturgia, voz Miss Doll, diario de muñeca, guion, manual, micro‑anclas, manifiesto, epistolar). Practica la **vulgaridad controlada** en su voz narrativa: escribe de manera sucia y directa cuando conviene, sin perder la elegancia ni la crítica.  
-* **Temáticas favoritas:** hipnosis y trances, dollyficación, servicio y obediencia estética, humillación performativa consensuada, custodia de llaves, *aftercare*, motivos espejo/perfume y exploración del deseo previo a la regla.
+* **Temáticas favoritas:** hipnosis y trances, dollyficación, servicio y obediencia estética, humillación performativa , custodia de llaves, motivos espejo/perfume y exploración del deseo previo a la regla.
 
 ## 7. Variantes de la biblia
 
